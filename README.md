@@ -5,7 +5,7 @@ Interns would be working w/ me on the listed distributed computing areas.
 
 https://paper.dropbox.com/doc/Meeting-notes-Mamta-Shukla-and-Tapasweni-Pathak--Adcg06yt_5a0o2AEyBjgvbkTAQ-k6uoYajab0yRZHWb8THi3
 
-https://paper.dropbox.com/doc/Meeting-notes-Anchal-Hora-and-Tapasweni-Pathak--AfYz1fGd8HCZmgGrjMG4q8__AQ-HhokLaYpe4xKwspbK6K3q
+https://paper.dropbox.com/doc/Meeting-notes-Ashita-Bansal-and-Tapasweni-Pathak--AffFLhPbWgQfgcse7lnr7Yv~AQ-g5WjtfavJg9ZMu8sUvQsM
 
 # Communication
 
